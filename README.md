@@ -19,7 +19,8 @@ The latest in AI research and its implications for sustainable development.
 ## 🤝 Let's Connect:
 I'm looking to collaborate on projects that are at the intersection of data science, renewable energy, and tech-driven social impact. If you share similar interests or have an opportunity in mind, don't hesitate to reach out!
 
-LinkedIn: []
+LinkedIn: [www.linkedin.com/in/siyabonga-msiza-07506616a]
+
 Email: [siyabester0477@gmail.com]
 
 Together, let's harness the power of data to make a real difference. Here's to a journey of discovery, innovation, and positive impact!
